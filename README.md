@@ -227,4 +227,4 @@ Thunderstore is provided as a complete free version with all features and update
 Ready to enhance your gaming experience? **Download Thunderstore free today and unlock the full potential of your favorite games!**
 
 ---
-**Last updated:** 2026-09-30 20:42:35 UTC
+**Last updated:** 2026-10-01 00:27:27 UTC
